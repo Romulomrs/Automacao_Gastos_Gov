@@ -6,3 +6,5 @@ Outras estatísticas:
 ![Image](https://github.com/user-attachments/assets/908ab443-c757-4d2b-9e56-c12913d03df8)
 
 ![Image](https://github.com/user-attachments/assets/5e233d01-c2ea-41eb-a66f-e7c50045512b)
+
+![Image](https://github.com/user-attachments/assets/6191f8e8-fa43-497a-b92b-de803c7d6d15)
